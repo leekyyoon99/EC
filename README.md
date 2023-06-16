@@ -6,3 +6,10 @@
 
 
 ![image](https://github.com/leekyyoon99/EC/assets/121138800/48b14b43-fe9b-457c-b207-cd3ab0adc97b)
+
+
+
+
+![image](https://github.com/leekyyoon99/EC/assets/121138800/ff7ad513-867d-4433-95cb-3503adf60004)
+
+![image](https://github.com/leekyyoon99/EC/assets/121138800/55d1ddf1-5006-498d-ab02-3a6779c809e6)
